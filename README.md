@@ -1,1 +1,0 @@
-# QR_Tipa_AIseedsaope3
